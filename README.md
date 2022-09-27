@@ -37,3 +37,25 @@ Make sure to actively take care of your body and mental health.
 
 When assigned a task do you best no matter if you enjoy the task for not.  This work ethic will show to your managers and superiors.
 
+
+
+
+# 📕Book recommendations📕
+
+  
+
+
+***Can't Hurt Me: Master Your Mind and Defy the Odds*** by David Goggins
+  
+
+***MONEY Master the Game*** by Tony Robbins
+  
+
+***Unshakeable: Your Financial Freedom Playbook*** by Tony Robbins
+  
+
+***Rich Dad Poor Dad*** by Robert Kiyosaki and Sharon Lechter
+
+
+***Blockchain Revolution: How the Technology Behind Bitcoin Is Changing Money, Business, and the World*** by Alex Tapscott and Don Tapscott
+
